@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Python and Maths😅**
 
-- 📫 How to reach me **prashantsubedi35@gmail.com**
+- 📫 How to reach me **prasantsubedi119@gmail.com**
 
 - ⚡ `Fun fact:` **I think I am funny🤪 BAZINGAAA!**
 
